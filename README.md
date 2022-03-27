@@ -1,0 +1,3 @@
+- she/they
+-kazuha wifey(⌐■-■)
+-ISTP-T
